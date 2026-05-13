@@ -1,4 +1,4 @@
-Berikut deskripsi untuk laporan praktikum kamu:
+Berikut deskripsi untuk laporan praktikum:
 
 ---
 
